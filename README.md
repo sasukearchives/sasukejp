@@ -18,21 +18,17 @@ I will update the links everyday, so if you cannot download, please try again th
 
 [Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMmm0t)
 
-## SASUKE Nhật Bản mùa 2 / SASUKE 2
+## SASUKE Nhật Bản mùa 2 / SASUKE 2 / SASUKE1998秋
 
-These links are just templates, they are not working.
+[Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMmODT)
 
-[Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMmnUi)
+[Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMmPel)
 
-[Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMmm0t)
+## SASUKE Nhật Bản mùa 3 / SASUKE 3 / SASUKE1999春
 
-## SASUKE Nhật Bản mùa 3 / SASUKE 3
+[Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMmPCr)
 
-These links are just templates, they are not working.
-
-[Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMmnUi)
-
-[Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMmm0t)
+[Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMmArd)
 
 ## SASUKE Nhật Bản mùa 4 / SASUKE 4
 
