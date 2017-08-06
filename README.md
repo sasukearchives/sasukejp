@@ -1,4 +1,4 @@
-# Tổng hợp link tải SASUKE Nhật Bản / SASUKE Japan download links / SASUKE ダウンロードリンク
+# Tổng hợp link tải SASUKE Nhật Bản / SASUKE Japan download links / SASUKE Ninja Warrior ダウンロードリンク
 
 Link download được cập nhập lần cuối vào ngày 6 tháng 8 năm 2017
 
@@ -12,31 +12,31 @@ I will update the links everyday, so if you cannot download, please try again th
 
 毎日リンクを更新しますので、ダウンロードできない場合はもう一度お試しください:)
 
-## SASUKE Nhật Bản mùa 1 / SASUKE 1 / 究極のサバイバルアタックSASUKE
+## SASUKE Nhật Bản mùa 1 / SASUKE Ninja Warrior 1 / 究極のサバイバルアタックSASUKE
 
 [Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMmnUi)
 
 [Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMmm0t)
 
-## SASUKE Nhật Bản mùa 2 / SASUKE 2 / SASUKE1998秋
+## SASUKE Nhật Bản mùa 2 / SASUKE Ninja Warrior 2 / SASUKE1998秋
 
 [Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMmODT)
 
 [Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMmPel)
 
-## SASUKE Nhật Bản mùa 3 / SASUKE 3 / SASUKE1999春
+## SASUKE Nhật Bản mùa 3 / SASUKE Ninja Warrior 3 / SASUKE1999春
 
 [Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMmPCr)
 
 [Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMmArd)
 
-## SASUKE Nhật Bản mùa 4 / SASUKE 4 / SASUKE1999秋
+## SASUKE Nhật Bản mùa 4 / SASUKE Ninja Warrior 4 / SASUKE1999秋
 
 [Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMYW02)
 
 [Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMYWnK)
 
-## SASUKE Nhật Bản mùa 5 / SASUKE 5 / SASUKE2000春
+## SASUKE Nhật Bản mùa 5 / SASUKE Ninja Warrior 5 / SASUKE2000春
 
 [Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMYWKP)
 
