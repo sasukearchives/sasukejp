@@ -48,170 +48,166 @@ I will update the links everyday, so if you cannot download, please try again th
 
 [Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMYWKP)
 
-## SASUKE Nhật Bản mùa 6 / SASUKE Ninja Warrior 6 / SASUKE2000秋
+## SASUKE Nhật Bản mùa 7 / SASUKE Ninja Warrior 7 / SASUKE2000秋
 
 [Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMUvGl)
 
 [Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMUcMa)
 
-## SASUKE Nhật Bản mùa 6 / SASUKE Ninja Warrior 6 / SASUKE2000秋
+## SASUKE Nhật Bản mùa 8 / SASUKE Ninja Warrior 6 / SASUKE2000秋
 
 [Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMUvt4)
 
 [Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMUvMM)
 
-## SASUKE Nhật Bản mùa 6 / SASUKE Ninja Warrior 6 / SASUKE2000秋
+## SASUKE Nhật Bản mùa 9 / SASUKE Ninja Warrior 6 / SASUKE2000秋
 
 [Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMUv1n)
 
 [Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMUvRy)
 
-## SASUKE Nhật Bản mùa 6 / SASUKE Ninja Warrior 6 / SASUKE2000秋
+## SASUKE Nhật Bản mùa 10 / SASUKE Ninja Warrior 6 / SASUKE2000秋
 
 [Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMUvEJ)
 
 [Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMUvEe)
 
-## SASUKE Nhật Bản mùa 6 / SASUKE Ninja Warrior 6 / SASUKE2000秋
+## SASUKE Nhật Bản mùa 11 / SASUKE Ninja Warrior 6 / SASUKE2000秋
 
 [Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMUvt9)
 
 [Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMUvMc)
 
-## SASUKE Nhật Bản mùa 6 / SASUKE Ninja Warrior 6 / SASUKE2000秋
+## SASUKE Nhật Bản mùa 12 / SASUKE Ninja Warrior 6 / SASUKE2000秋
 
 [Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMUvEW)
 
 [Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMUv1z)
 
-## SASUKE Nhật Bản mùa 6 / SASUKE Ninja Warrior 6 / SASUKE2000秋
+## SASUKE Nhật Bản mùa 13 / SASUKE Ninja Warrior 6 / SASUKE2000秋
 
 [Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMmODT)
 
 [Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMUv1F)
 
-## SASUKE Nhật Bản mùa 6 / SASUKE Ninja Warrior 6 / SASUKE2000秋
+## SASUKE Nhật Bản mùa 14 / SASUKE Ninja Warrior 6 / SASUKE2000秋
 
 [Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMUvGf)
 
 [Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMUvWB)
 
-## SASUKE Nhật Bản mùa 6 / SASUKE Ninja Warrior 6 / SASUKE2000秋
+## SASUKE Nhật Bản mùa 15 / SASUKE Ninja Warrior 6 / SASUKE2000秋
 
 [Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMUvt4)
 
 [Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMUv1n)
 
-## SASUKE Nhật Bản mùa 6 / SASUKE Ninja Warrior 6 / SASUKE2000秋
+## SASUKE Nhật Bản mùa 16 / SASUKE Ninja Warrior 6 / SASUKE2000秋
 
 [Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMUvHH)
 
 [Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMUcNW)
 
-## SASUKE Nhật Bản mùa 6 / SASUKE Ninja Warrior 6 / SASUKE2000秋
+## SASUKE Nhật Bản mùa 17 / SASUKE Ninja Warrior 6 / SASUKE2000秋
 
 [Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMUcNv)
 
 [Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMUvt9)
 
-## SASUKE Nhật Bản mùa 6 / SASUKE Ninja Warrior 6 / SASUKE2000秋
+## SASUKE Nhật Bản mùa 18 / SASUKE Ninja Warrior 6 / SASUKE2000秋
 
 [Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMUvRx)
 
 [Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMUvtG)
 
-## SASUKE Nhật Bản mùa 6 / SASUKE Ninja Warrior 6 / SASUKE2000秋
+## SASUKE Nhật Bản mùa 19 / SASUKE Ninja Warrior 6 / SASUKE2000秋
 
 [Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMYWKP)
 
 [Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMYWnK)
 
-## SASUKE Nhật Bản mùa 6 / SASUKE Ninja Warrior 6 / SASUKE2000秋
+## SASUKE Nhật Bản mùa 20 / SASUKE Ninja Warrior 6 / SASUKE2000秋
 
 [Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMUv1p)
 
 [Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMUcNe)
 
-## SASUKE Nhật Bản mùa 6 / SASUKE Ninja Warrior 6 / SASUKE2000秋
+## SASUKE Nhật Bản mùa 21 / SASUKE Ninja Warrior 6 / SASUKE2000秋
 
 [Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMUvus)
 
 [Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMUvHH)
 
-## SASUKE Nhật Bản mùa 6 / SASUKE Ninja Warrior 6 / SASUKE2000秋
+## SASUKE Nhật Bản mùa 22 / SASUKE Ninja Warrior 6 / SASUKE2000秋
 
 [Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMUvG7)
 
 [Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMUcNU)
 
-## SASUKE Nhật Bản mùa 6 / SASUKE Ninja Warrior 6 / SASUKE2000秋
+## SASUKE Nhật Bản mùa 23 / SASUKE Ninja Warrior 6 / SASUKE2000秋
 
 [Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMUcNC)
 
 [Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMUvGb)
 
-## SASUKE Nhật Bản mùa 6 / SASUKE Ninja Warrior 6 / SASUKE2000秋
+## SASUKE Nhật Bản mùa 24 / SASUKE Ninja Warrior 6 / SASUKE2000秋
 
 [Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMUcMh)
 
 [Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMUvyD)
 
-## SASUKE Nhật Bản mùa 6 / SASUKE Ninja Warrior 6 / SASUKE2000秋
+## SASUKE Nhật Bản mùa 25 / SASUKE Ninja Warrior 6 / SASUKE2000秋
 
 [Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMUvuc)
 
 [Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMUvt9)
 
-## SASUKE Nhật Bản mùa 6 / SASUKE Ninja Warrior 6 / SASUKE2000秋
+## SASUKE Nhật Bản mùa 26 / SASUKE Ninja Warrior 6 / SASUKE2000秋
 
 [Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMUcNv)
 
 [Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMUvyl)
 
-## SASUKE Nhật Bản mùa 6 / SASUKE Ninja Warrior 6 / SASUKE2000秋
+## SASUKE Nhật Bản mùa 27 / SASUKE Ninja Warrior 6 / SASUKE2000秋
 
 [Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMUvyK)
 
 [Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMUvMj)
 
-## SASUKE Nhật Bản mùa 6 / SASUKE Ninja Warrior 6 / SASUKE2000秋
+## SASUKE Nhật Bản mùa 28 / SASUKE Ninja Warrior 6 / SASUKE2000秋
 
 [Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMUvHY)
 
 [Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMUvuc)
 
-## SASUKE Nhật Bản mùa 6 / SASUKE Ninja Warrior 6 / SASUKE2000秋
+## SASUKE Nhật Bản mùa 29 / SASUKE Ninja Warrior 6 / SASUKE2000秋
 
 [Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMYWKP)
 
 [Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMUcBL)
 
-## SASUKE Nhật Bản mùa 6 / SASUKE Ninja Warrior 6 / SASUKE2000秋
+## SASUKE Nhật Bản mùa 30 / SASUKE Ninja Warrior 6 / SASUKE2000秋
 
 [Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMUvGf)
 
 [Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMUvE1)
 
-## SASUKE Nhật Bản mùa 6 / SASUKE Ninja Warrior 6 / SASUKE2000秋
+## SASUKE Nhật Bản mùa 31 / SASUKE Ninja Warrior 6 / SASUKE2000秋
 
 [Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMUv1F)
 
 [Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMUvMX)
 
-## SASUKE Nhật Bản mùa 6 / SASUKE Ninja Warrior 6 / SASUKE2000秋
+## SASUKE Nhật Bản mùa 32 / SASUKE Ninja Warrior 6 / SASUKE2000秋
 
 [Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMUv1n)
 
 [Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMUvyr)
 
-## SASUKE Nhật Bản mùa 6 / SASUKE Ninja Warrior 6 / SASUKE2000秋
+## SASUKE Nhật Bản mùa 33 / SASUKE Ninja Warrior 6 / SASUKE2000秋
 
 [Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMUvEi)
 
 [Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMUvGl)
 
-## SASUKE Nhật Bản mùa 6 / SASUKE Ninja Warrior 6 / SASUKE2000秋
-
-[Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMmPel)
-
-[Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMUvGo)
+## SASUKE Nhật Bản mùa 34 / SASUKE Ninja Warrior 6 / SASUKE2000秋
