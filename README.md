@@ -1,10 +1,10 @@
 # Tổng hợp link tải SASUKE Nhật Bản / SASUKE Japan download links / SASUKE ダウンロードリンク
 
-Link download được cập nhập lần cuối vào ngày 5 tháng 8 năm 2017
+Link download được cập nhập lần cuối vào ngày 6 tháng 8 năm 2017
 
-Links are updated in August 5th, 2017
+Links are updated in August 6th, 2017
 
-リンクは2017年8月5日に更新されます
+リンクは2017年8月6日に更新されます
 
 Mình sẽ cập nhập link tải hàng ngày, vì vậy nếu bạn không download được, hãy thử lại vào ngày hôm sau.
 
@@ -30,25 +30,21 @@ I will update the links everyday, so if you cannot download, please try again th
 
 [Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMmArd)
 
-## SASUKE Nhật Bản mùa 4 / SASUKE 4
+## SASUKE Nhật Bản mùa 4 / SASUKE 4 / SASUKE1999秋
 
+[Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMYW02)
 
+[Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMYWnK)
 
-[Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMmnUi)
+## SASUKE Nhật Bản mùa 5 / SASUKE 5 / SASUKE2000春
 
-[Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMmm0t)
+[Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMYWKP)
 
-## SASUKE Nhật Bản mùa 5 / SASUKE 5
+[Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMYW4c)
 
-
-
-[Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMmnUi)
-
-[Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMmm0t)
+The links below are not working
 
 ## SASUKE Nhật Bản mùa 6 / SASUKE 6
-
-
 
 [Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMmnUi)
 
