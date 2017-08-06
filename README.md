@@ -14,261 +14,261 @@ I will update the links everyday, so if you cannot download, please try again th
 
 ## SASUKE Nhật Bản mùa 1 / SASUKE Ninja Warrior 1 / 究極のサバイバルアタックSASUKE
 
-[Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMmnUi)
+[Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMUcMq)
 
-[Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMmm0t)
+[Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMUvyI)
 
 ## SASUKE Nhật Bản mùa 2 / SASUKE Ninja Warrior 2 / SASUKE1998秋
 
-[Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMmODT)
+[Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMUcB8)
 
-[Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMmPel)
+[Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMUvWF)
 
 ## SASUKE Nhật Bản mùa 3 / SASUKE Ninja Warrior 3 / SASUKE1999春
 
-[Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMmPCr)
+[Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMUvt4)
 
-[Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMmArd)
+[Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMUcNv)
 
 ## SASUKE Nhật Bản mùa 4 / SASUKE Ninja Warrior 4 / SASUKE1999秋
 
-[Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMYW02)
+[Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMUvW3)
 
-[Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMYWnK)
+[Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMUv1p)
 
 ## SASUKE Nhật Bản mùa 5 / SASUKE Ninja Warrior 5 / SASUKE2000春
 
-[Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMYWKP)
+[Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMUvMw)
 
-[Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMYW4c)
+[Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMUvtG)
 
 The links below are not working
 
 ## SASUKE Nhật Bản mùa 6 / SASUKE 6
 
-[Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMmnUi)
+[Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMUvGI)
 
-[Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMmm0t)
+[Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMYWKP)
 
 ## SASUKE Nhật Bản mùa 7 / SASUKE 7
 
 
 
-[Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMmnUi)
+[Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMUvGl)
 
-[Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMmm0t)
+[Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMUcMa)
 
 ## SASUKE Nhật Bản mùa 8 / SASUKE 8
 
 
 
-[Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMmnUi)
+[Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMUvt4)
 
-[Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMmm0t)
+[Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMUvMM)
 
 ## SASUKE Nhật Bản mùa 9 / SASUKE 9
 
 
 
-[Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMmnUi)
+[Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMUv1n)
 
-[Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMmm0t)
+[Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMUvRy)
 
 ## SASUKE Nhật Bản mùa 10 / SASUKE 10
 
 
 
-[Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMmnUi)
+[Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMUvEJ)
 
-[Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMmm0t)
+[Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMUvEe)
 
 ## SASUKE Nhật Bản mùa 11 / SASUKE 11
 
 
 
-[Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMmnUi)
+[Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMUvt9)
 
-[Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMmm0t)
+[Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMUvMc)
 
 ## SASUKE Nhật Bản mùa 12 / SASUKE 12
 
 
 
-[Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMmnUi)
+[Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMUvEW)
 
-[Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMmm0t)
+[Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMUv1z)
 
 ## SASUKE Nhật Bản mùa 13 / SASUKE 13
 
 
 
-[Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMmnUi)
+[Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMmODT)
 
-[Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMmm0t)
+[Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMUv1F)
 
 ## SASUKE Nhật Bản mùa 14 / SASUKE 14
 
 
 
-[Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMmnUi)
+[Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMUvGf)
 
-[Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMmm0t)
+[Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMUvWB)
 
 ## SASUKE Nhật Bản mùa 15 / SASUKE 15
 
 
 
-[Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMmnUi)
+[Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMUvt4)
 
-[Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMmm0t)
+[Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMUv1n)
 
 ## SASUKE Nhật Bản mùa 16 / SASUKE 16
 
 
 
-[Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMmnUi)
+[Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMUvHH)
 
-[Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMmm0t)
+[Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMUcNW)
 
 ## SASUKE Nhật Bản mùa 17 / SASUKE 17
 
 
 
-[Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMmnUi)
+[Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMUcNv)
 
-[Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMmm0t)
+[Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMUvt9)
 
 ## SASUKE Nhật Bản mùa 18 / SASUKE 18
 
 
 
-[Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMmnUi)
+[Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMUvRx)
 
-[Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMmm0t)
+[Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMUvtG)
 
 ## SASUKE Nhật Bản mùa 19 / SASUKE 19
 
 
 
-[Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMmnUi)
+[Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMYWKP)
 
-[Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMmm0t)
+[Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMYWnK)
 
 ## SASUKE Nhật Bản mùa 20 / SASUKE 20
 
 
 
-[Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMmnUi)
+[Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMUv1p)
 
-[Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMmm0t)
+[Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMUcNe)
 
 ## SASUKE Nhật Bản mùa 21 / SASUKE 21
 
 
 
-[Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMmnUi)
+[Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMUvus)
 
-[Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMmm0t)
+[Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMUvHH)
 
 ## SASUKE Nhật Bản mùa 22 / SASUKE 22
 
 
 
-[Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMmnUi)
+[Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMUvG7)
 
-[Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMmm0t)
+[Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMUcNU)
 
 ## SASUKE Nhật Bản mùa 23 / SASUKE 23
 
 
 
-[Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMmnUi)
+[Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMUcNC)
 
-[Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMmm0t)
+[Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMUvGb)
 
 ## SASUKE Nhật Bản mùa 24 / SASUKE 24
 
 
 
-[Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMmnUi)
+[Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMUcMh)
 
-[Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMmm0t)
+[Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMUvyD)
 
 ## SASUKE Nhật Bản mùa 25 / SASUKE 25
 
 
 
-[Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMmnUi)
+[Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMUvuc)
 
-[Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMmm0t)
+[Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMUvt9)
 
 ## SASUKE Nhật Bản mùa 26 / SASUKE 26
 
 
 
-[Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMmnUi)
+[Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMUcNv)
 
-[Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMmm0t)
+[Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMUvyl)
 
 ## SASUKE Nhật Bản mùa 27 / SASUKE 27
 
 
 
-[Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMmnUi)
+[Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMUvyK)
 
-[Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMmm0t)
+[Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMUvMj)
 
 ## SASUKE Nhật Bản mùa 28 / SASUKE 28
 
 
 
-[Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMmnUi)
+[Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMUvHY)
 
-[Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMmm0t)
+[Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMUvuc)
 
 ## SASUKE Nhật Bản mùa 29 / SASUKE 29
 
 
 
-[Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMmnUi)
+[Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMYWKP)
 
-[Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMmm0t)
+[Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMUcBL)
 
 ## SASUKE Nhật Bản mùa 30 / SASUKE 30
 
 
-[Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMmnUi)
+[Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMUvGf)
 
-[Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMmm0t)
+[Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMUvE1)
 
 ## SASUKE Nhật Bản mùa 31 / SASUKE 31
 
 
 
-[Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMmnUi)
+[Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMUv1F)
 
-[Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMmm0t)
+[Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMUvMX)
 
 ## SASUKE Nhật Bản mùa 32 / SASUKE 32
 
 
 
-[Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMmnUi)
+[Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMUv1n)
 
-[Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMmm0t)
+[Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMUvyr)
 
 ## SASUKE Nhật Bản mùa 33 / SASUKE 33
 
 
 
-[Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMmnUi)
+[Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMUvEi)
 
-[Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMmm0t)
+[Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMUvGl)
 
 ## SASUKE Nhật Bản mùa 34 / SASUKE 34
 
 
 
-[Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMmnUi)
+[Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMmPel)
 
-[Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMmm0t)
+[Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMUvGo)
