@@ -1,10 +1,10 @@
 # Tổng hợp link tải SASUKE Nhật Bản / SASUKE Japan download links / SASUKE Ninja Warrior ダウンロードリンク
 
-Link download được cập nhập lần cuối vào ngày 6 tháng 8 năm 2017
+Link download được cập nhập lần cuối vào ngày 7 tháng 8 năm 2017
 
-Links are updated in August 6th, 2017
+Links are updated in August 7th, 2017
 
-リンクは2017年8月6日に更新されます
+リンクは2017年8月7日に更新されます
 
 Mình sẽ cập nhập link tải hàng ngày, vì vậy nếu bạn không download được, hãy thử lại vào ngày hôm sau.
 
