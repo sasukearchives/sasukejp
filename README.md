@@ -202,7 +202,6 @@ I will update the links everyday, so if you cannot download, please try again th
 
 [Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMUvyl)
 
-
 ## SASUKE Nhật Bản mùa 30 / SASUKE Ninja Warrior 30 / SASUKE 2014 第30回記念大会
 
 [SASUKE Navi / SASUKEナビ](http://gestyy.com/qMUcNd)
@@ -214,8 +213,6 @@ I will update the links everyday, so if you cannot download, please try again th
 [SASUKE Navi / SASUKEナビ](http://gestyy.com/qMmPCr)
 
 [Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMUcNC)
-
-[Bản G4 / G4 broadcast/ G4放送](http://gestyy.com/qMUvE1)
 
 ## SASUKE Nhật Bản mùa 32 / SASUKE Ninja Warrior 32 / SASUKE 2016
 
