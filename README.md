@@ -16,7 +16,7 @@ I will update the links everyday, so if you cannot download, please try again th
 
 Do not use Internet Explorer, and in shorte.st sites, please press Skip Ad only, don't press anything like OK or Download.
 
-Internet Explorerを使用せず、shorte.stサイトでは、[スキップ広告のみ]を押すか、[OK]または[ダウンロード]のようなものを押さないでください。
+ウンロード これらのリンクを開くためにInternet Explorerを使わないでください、shorte.stサイトでは、[スキップ広告のみ]を押すか、[OK]または[ダウンロード]のようなものを押さないでください。
 
 Các link ở [blog này](http://gestyy.com/q2cjlw) được đăng ở chỗ an toàn nên chúng sẽ không die nhanh như như mấy link dưới dây
 
