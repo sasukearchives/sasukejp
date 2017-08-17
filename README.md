@@ -18,13 +18,6 @@ Do not use Internet Explorer, and in shorte.st sites, please press Skip Ad only,
 
 ウンロード これらのリンクを開くためにInternet Explorerを使わないでください、shorte.stサイトでは、[スキップ広告のみ]を押すか、[OK]または[ダウンロード]のようなものを押さないでください。
 
-Các link ở [blog này](http://gestyy.com/q2cjlw) được đăng ở chỗ an toàn nên chúng sẽ không die nhanh như như mấy link dưới dây
-
-The links in [this blog](http://gestyy.com/q2cjlw) won't die in the near future.
-
-[このブログのリンクは近い将来死ぬことはありません](http://gestyy.com/q2cjlw)
-
-
 ## SASUKE Nhật Bản mùa 1 / SASUKE Ninja Warrior 1 / 究極のサバイバルアタックSASUKE
 
 [Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMUvWF)
