@@ -12,6 +12,12 @@ I will update the links everyday, so if you cannot download, please try again th
 
 毎日リンクを更新しますので、ダウンロードできない場合はもう一度お試しください:)
 
+Để tránh virus, các bạn không nên dùng Internet Explorer để xem và download các video, và khi ở các trang shorte.st, bạn chỉ ấn Skip Ad và không bấm bất kì nút nào khác.
+
+Do not use Internet Explorer, and in shorte.st sites, please press Skip Ad only, don't press anything like OK or Download.
+
+Internet Explorerを使用せず、shorte.stサイトでは、[スキップ広告のみ]を押すか、[OK]または[ダウンロード]のようなものを押さないでください。
+
 ## SASUKE Nhật Bản mùa 1 / SASUKE Ninja Warrior 1 / 究極のサバイバルアタックSASUKE
 
 [Bản gốc / TBS broadcast / TBS放送](http://gestyy.com/qMUvWF)
