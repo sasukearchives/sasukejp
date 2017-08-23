@@ -8,6 +8,10 @@ Links are updated in August 23th, 2017
 
 Mình bận rồi nên mình không còn thời gian update link nữa :(
 
+I'll not update the links :(
+
+私はリンクを更新しません:(
+
 Để tránh virus, các bạn không nên dùng Internet Explorer để xem và download các video, và khi ở các trang shorte.st, bạn chỉ ấn Skip Ad và không bấm bất kì nút nào khác.
 
 Do not use Internet Explorer, and in shorte.st sites, please press Skip Ad only, don't press anything like OK or Download.
